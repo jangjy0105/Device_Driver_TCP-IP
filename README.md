@@ -37,7 +37,7 @@
 ---
 
 ### 4. 결과 및 시연 영상
-- [시연영상](https://www.youtube.com/watch?v=tQvCsBOAzPM)
+- [시연영상](https://www.youtube.com/shorts/SvG1WUJu5-o)
 
 ---
 
